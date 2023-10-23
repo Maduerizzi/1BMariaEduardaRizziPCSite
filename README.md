@@ -1,3 +1,3 @@
 # 1BMariaEduardaRizziPCSite
-## ABabiSoseferra
-### MeusBrowniessaoincriveis
+## ABabiSoSeFerra
+### MeusBrowniesSaoIncriveis
